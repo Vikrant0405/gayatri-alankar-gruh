@@ -1,1 +1,0 @@
-# gayatri-alankar-gruh
